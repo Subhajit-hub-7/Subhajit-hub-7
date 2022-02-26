@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Subhajit-hub-7
-- 👀 I’m interested in Harcore Coding, Projects, Avoiding unnecessary convos
+- 👀 I’m interested in Hardcore Coding, Projects, Avoiding unnecessary convos
 - 🌱 I’m currently learning how to learn
 - 💞️ I’m looking forward to fly
 - 📫 How to reach me : By no way
